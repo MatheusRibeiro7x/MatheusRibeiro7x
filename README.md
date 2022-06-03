@@ -1,0 +1,5 @@
+- 👋 Olá, meu nome é @MatheusRibeiro7x
+- 🍫 Bebo toddynho toda noite
+- 📓 Sou estudante
+- ⚽ Neymar > Messi
+- 🏆 Palmeiras maior do Brasil
